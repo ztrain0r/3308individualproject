@@ -1,2 +1,0 @@
-# IndividualProjectsSetB
-IndividualProjectsSetB
